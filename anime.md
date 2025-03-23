@@ -339,4 +339,4 @@
 - Wake Up, Girls!
 - BanG Dream系列
 - Girls Band Cry
-- 大道朝天
+- 大道朝天 ⭐⭐
