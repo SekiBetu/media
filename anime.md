@@ -340,3 +340,4 @@
 - BanG Dream系列
 - Girls Band Cry
 - 大道朝天 ⭐⭐
+- 神道帝尊
